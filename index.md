@@ -35,9 +35,10 @@ Staff member information / LSRP Exposed :s
 
 
 Special thanks:
-- Missi (thanks for taking only 
+- Missi (thanks for taking only tip. I'd kill myself if i got you preg)
+ps bogus says he's sorry for making you cry
 
-- !locita!
+- !Locita!
 
 - Sarcasmohjoy (sorry about the mom :()
 
