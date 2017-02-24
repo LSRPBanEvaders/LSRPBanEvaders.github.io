@@ -36,7 +36,11 @@ Staff member information / LSRP Exposed :s
 
 Special thanks:
 - Missi (thanks for taking only the tip. I'd kill myself if i got you preg)
+
 ps bogus says he's sorry for making you cry
+
+pss sed says he's sorry for leaking those admin screenshots. he deleted them from his website :)
+
 
 - !Locita!
 
