@@ -1,3 +1,7 @@
+### Sed & Bogus, LSRP.
+
+
+
 ### MMARTIN SUCKS DICK 
 
 Coming soon fams.
